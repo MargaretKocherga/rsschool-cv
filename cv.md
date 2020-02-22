@@ -1,3 +1,3 @@
-Margarita Kocherga
-Telegram: @MagicDarkness
-Github: github.com/MargaretKocherga
+Margarita Kocherga  
+Telegram: @MagicDarkness  
+Github: github.com/MargaretKocherga  
